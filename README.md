@@ -1,6 +1,6 @@
 # netflixclone
 
-  Used:
+  Usado:
   - React JS
   - Material UI
   
