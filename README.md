@@ -6,7 +6,7 @@
     
 
 
-![Image of Netflix](https://cdn.discordapp.com/attachments/775807504851533826/909210107571744819/gif_Trim.mp4)
+![Image of Netflix](https://cdn.discordapp.com/attachments/775807504851533826/909224870066405426/ezgif.com-gif-maker.gif)
 
 
 
